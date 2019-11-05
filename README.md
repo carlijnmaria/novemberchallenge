@@ -1,3 +1,3 @@
 # novemberchallenge
-Groupmates: Patrick, Safouane & Carlijn //
+Groupmates: Patrick, Safouane, Zapp & Carlijn //
 Monkey business challenge
